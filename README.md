@@ -4,8 +4,8 @@ Exercises of the Sebrae's Book Collection - Essential Guide For New Entrepreneur
 The book is available for download on [Sebrae's Page](https://www.sebrae.com.br/sites/PortalSebrae/ufs/mg/sebraeaz/guia-essencial-para-novos-empreendedores,8f9d999b516ff410VgnVCM1000004c00210aRCRD) (Last check April 7 2017)
 
 ## My Rules
-*I pretend to do at least one exercise per day, probabily at lunch time.
-*Write only in English, to practice.
+* I pretend to do at least one exercise per day, probabily at lunch time.
+* Write only in English, to practice.
 
 ## Colmeia Tecnologia
 I intend to to apply all of those exercices  on my business. At 521 Minas Gerais Street, room 6. Poços de Caldas, MG. Brazil, called Colmeia Tecnologia.
